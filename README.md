@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding & IT in general, but have found curiosity in cyber security.
 - 🌱 I’m currently learning the basics to be honest.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me mbbcrownley@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I enjoy humour, that's funny right?
 
